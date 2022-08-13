@@ -57,7 +57,7 @@
 ![Dingtalk_20220225111636.jpg](https://s2.loli.net/2022/08/13/iCHtrw8o5SO79RA.jpg)
 
 ## 所以我们猜测
-### 逊宇成一定是[**](https://www.bilibili.com/video/BV1cu41117WF)了！（单击蓝色字体）
+### 逊宇成一定是[**](https://www.bilibili.com/video/BV1cu41117WF)了！（单击星星有特效哦）
 
 ## 怎么证明呢？
 ### 我们可以去sbwyx为参照物
